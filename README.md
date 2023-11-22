@@ -36,7 +36,7 @@ Mi top 5 de comida:
 **Aux. Depto de Sistemas de Pensiones Civiles del Estado de Chihuahua** *Oct 2018 - Ene 2019*
 - Mantenimiento de servidores.
 
-**Atencion al cliente - [Cinemex](https://cinemex.com/)**
+**Atencion al cliente - [Cinemex](https://cinemex.com/)** *Jun 2022 - Ago 2022*
 - Labores de staff multifuncional.
 
 ## 👍 Certificaciones
